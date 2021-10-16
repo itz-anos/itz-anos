@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @itz-anos
+- 👀 I’m interested in hacking
+- 🌱 I’m currently learning hacking
